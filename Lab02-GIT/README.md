@@ -1,1 +1,1 @@
-do mojego projektu
+do mojego projektu.
